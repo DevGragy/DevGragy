@@ -1,4 +1,4 @@
-## Hi, I'm Elias or [DevJayMx](https://devgragy.github.io/Portafolio/) ✌
+## Hi, I'm Elias or [DevJayMx](https://www.devjaymx.com/) ✌
 
 ### What about me...
 
